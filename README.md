@@ -8,6 +8,9 @@
 - [~6/18 12:00](Watchable-list_20240614~20240618.md)
 - [~6/21 12:00](Watchable-list_20240618~20240621.md)
 - [~6/24 12:00](Watchable-list_20240621~20240624.md)
+### しれっと見れなくなってた動画
+~6/25 12:00までは多分見れた動画
+- [細かすぎて伝わらないモノマネ　個人的ツボ　ep5～ep7](https://www.nicovideo.jp/watch_tmp/sm9344138)
 ### 現在見れる動画一覧
 - [本気でカレー生活50日やってみた。](https://www.nicovideo.jp/watch_tmp/sm9260148)
 - [博麗霊夢の細かすぎて伝わらないモノマネ選手権(元日スペシャル)](https://www.nicovideo.jp/watch_tmp/sm9260335)
